@@ -1,1 +1,1 @@
-# Betersultanov-github.io
+# Адам Бетерсултанов
